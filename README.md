@@ -1,5 +1,20 @@
 # masterchef-jr
 
+
+INGREDIENTS:
+
+1 1/2 sticks	Butter, unsalted
+1/3 cup	Granulated Sugar
+2/3 cup	Brown Sugar
+1	Egg
+1	Egg Yolk
+1 1/2 tsp	Vanilla Extract
+2 cups	All-purpose Flour
+1/2 teaspoon	Baking Soda
+1/2 teaspoon	Kosher Salt
+1 bag (11 oz)	Ghirardelli Grand Semi-Sweet Chocolate Chips
+
+STEPS:
 Preheat oven to 375°F. 
 In a saucepan melt the butter over low heat. Set aside for 5 minutes to cool slightly. 
 In a medium bowl, combine flour, baking soda, and salt until combined. Set Aside.
